@@ -51,7 +51,7 @@ permalink: /
 ██. ██ ▐█▌▐█▄▪▐█▐███▌         ▐█▌·▐█▄▄▌▐█▌▐▌▐█▄▄▌            ▐█▌▐█▄▪▐█
 ▀▀▀▀▀• ▀▀▀ ▀▀▀▀ ·▀▀▀          ▀▀▀  ▀▀▀ .▀▀▀  ▀▀▀             ▀▀▀·▀▀▀▀ 
 
-    ♱[This is an external link to discord](https://www.instagram.com/psyoppatch/)♱   [telegram](https://t.me/psyop123/)  [instagram](https://www.instagram.com/psyoppatch/)
+[Discord](https://discordapp.com/users/843618272779829248)
 
 
 [This is an external link to genome.gov](https://www.genome.gov/)
