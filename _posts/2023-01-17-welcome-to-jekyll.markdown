@@ -53,6 +53,7 @@ categories: jekyll update
 ▀▀▀▀▀• ▀▀▀ ▀▀▀▀ ·▀▀▀          ▀▀▀  ▀▀▀ .▀▀▀  ▀▀▀             ▀▀▀·▀▀▀▀ 
 
     ♱[discord]♱                  ♱[telegram]♱               ♱[instagram]♱
+[discord](https://discordapp.com/users/843618272779829248){:target="_blank"}{:rel="noopener noreferrer"}
  
                       
 
