@@ -51,22 +51,7 @@ permalink: /
 ██. ██ ▐█▌▐█▄▪▐█▐███▌         ▐█▌·▐█▄▄▌▐█▌▐▌▐█▄▄▌            ▐█▌▐█▄▪▐█
 ▀▀▀▀▀• ▀▀▀ ▀▀▀▀ ·▀▀▀          ▀▀▀  ▀▀▀ .▀▀▀  ▀▀▀             ▀▀▀·▀▀▀▀ 
 
-[Discord](https://discordapp.com/users/843618272779829248)
-[Instagram](https://www.instagram.com/psyoppatch/)
-[Telegram](https://t.me/psyop123)
-
-abatublolw
-
-
- 
-                      
+[Discord](https://discordapp.com/users/843618272779829248) [Telegram](https://t.me/psyop123) [Instagram](https://www.instagram.com/psyoppatch/)
 
 
 
-
-
-
-
-[discord]:https://discordapp.com/users/843618272779829248
-[telegram]: https://t.me/psyop123
-[instagram]:https://www.instagram.com/psyoppatch/
