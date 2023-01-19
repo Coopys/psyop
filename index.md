@@ -17,6 +17,11 @@ permalink: /
                ░  ░ ░         ░ ░
                   ░ ░
 
+
+[CLICK HERE FOR MOBILE VERSION](https://psyop.dev/jekyll/update/2023/01/17/welcome-to-jekyll.html)
+
+
+
 [Telegram](https://t.me/psyop123)
    
 [Discord](https://discordapp.com/users/843618272779829248)               
