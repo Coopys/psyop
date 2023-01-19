@@ -1,5 +1,5 @@
 ---
-title: /
+title: PSYOP
 layout: home
 permalink: /
 ---
